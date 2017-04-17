@@ -15,5 +15,5 @@ I am working on the following features for the prototype(presently on hold for c
 Anyone who's interested in joining, is welcome! :)
 
 Contact: shoutforpainkiller@gmail.com
-         artofshashank@gmail.com
-         artofshashank.wix.com/portfolio
+         \nartofshashank@gmail.com
+         \nartofshashank.wix.com/portfolio
